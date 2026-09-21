@@ -1,0 +1,1 @@
+# kittytail-assets
